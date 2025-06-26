@@ -25,3 +25,6 @@ But that permutation answers nothing. We are left on the same dull place. With g
 But, the magic might lie in the next step. If we consider architecture as the resulting item of multiple forces, we will arrive at a certain leftover. A waste product that in an initial view could be the same as the other n variations (little difference between each other). But then we change the inputs on the same system. We input our initial drafts and units, with the required imperfections of an original, and then we will have a self contained reference (the dull approach, rigorous but predictable) with the new imperfect plans (variable and lifelike) within the same system. 
 
 Having that thing, that leftover that is akin to the combinatorial, and at the same time unlike in its proposition, we arrive to a set of results. Could be 9 of this subset. And then we pick confidently. 
+
+
+Learn more [here - youtube](https://youtu.be/8D1uxeeRWr8)
