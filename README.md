@@ -27,4 +27,4 @@ But, the magic might lie in the next step. If we consider architecture as the re
 Having that thing, that leftover that is akin to the combinatorial, and at the same time unlike in its proposition, we arrive to a set of results. Could be 9 of this subset. And then we pick confidently. 
 
 
-Learn more [here - youtube](https://youtu.be/8D1uxeeRWr8)
+Learn more [here - youtube](https://youtu.be/C5VgkiSNRus)
